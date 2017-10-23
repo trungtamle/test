@@ -1,4 +1,4 @@
-Bất chấp mọi thời tiết cùng [Samsung Galaxy S7](http://tinhightech.net)
+Bất chấp mọi thời tiết cùng [Samsung Galaxy S7](tinhightech.net)
  
 Bạn là một người dùng smart phone? Trong quá trình sử dụng, bạn thường hay lo lắng về việc màn hình điện thoại hay bị bám bụi trong mất thẩm mỹ? Hoặc là lo lắng mỗi khi đi đâu gần hồ bơi, bãi biển vì sợ điện thoại bị thấm nước sẽ nhanh hư hỏng? Tất cả những nỗi lo của bạn sẽ không còn nữa với chiếc điện thoại Samsung Galaxy S7.
  
